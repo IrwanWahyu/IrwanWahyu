@@ -1,3 +1,3 @@
 Hi Irwan Wahyu here....
 I’m interest in Project Management, Data, Design and the most effective workforces possible in Transformation, 
-This project is for Task dibimbing.id data visualization
+
